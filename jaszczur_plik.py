@@ -1,0 +1,1 @@
+Inna nazwa i szymon wciaz przeszkadza	
